@@ -111,8 +111,6 @@ To find out more and discuss your need, get in touch at:
 
 Email: info@justonethingconsulting.com
 
-Tel: 07967 703545
-
  LinkedIn – https://www.linkedin.com/in/suenaughtonmarsh/
 
 ###  Who we have worked with
