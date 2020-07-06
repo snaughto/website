@@ -3,13 +3,26 @@
 
 ### About 
 
-We're in the business of working with humans. We do this by helping them to direct their energy and resources into the essential things that accelerate or hinder our ability to respond to fast paces of change, enjoyment of work, and ultimately the success of your organisation. 
+'Just One Thing' is a change consultancy that helps leaders ensure they develop and maintain focus on the activities that have the biggest impact on their organisation.
+We bring together 25 years of behavioural and organisational change consulting, powerful and dynamic psychometric profiling and the very best change management techniques backed by neuroscience.
+
+We support organisations to take the steps to developing their organisation in the simplest and quickest route and by focusing on habits that bring clarity and focus.  This then translates to a collective shift of culture. 
+
+Whether you are a developing senior team, emerging leaders or individuals we equip people to:
+
+* Focus on the right things and do them well
+* Measure the impact and reflect for future growth
+
+Diagram to go here....
+### Our Approach
 
 Shifting our behaviour can be difficult, is often not measured and is therefore not prioritised – until people start to break, and then business suffers. 
 
 Collective behavioural change can be so much easier, and it can be measured, when we understand how individuals work (and play). 
 
-We bring together twenty five years of organisational development experience, neuroscience, cognitive behaviour and personal resilience development that results in change that is: 
+We focus on the key things that can be:
+
+Diagram to go here....
 
 - Seen - _observable_ 
 - Felt - _measurable_ 
@@ -41,7 +54,7 @@ Our workshops are designed to build connectivity and encourage natural and open 
 
 #### Leadership Development 
 
-'Just one Thing' is true to its philosophy when it comes to developing leaders and managers. Whether it's a programme to develop a coaching culture, developing current or aspiring management capability or helping staff with the basics of management, we have a modular approach that will focus on the one change that will have the biggest impact on personal performance and impact on the organisation. 
+'Just one Thing' is true to its philosophy when it comes to developing leaders and managers. Whether it's a programme to develop a coaching culture, developing current or aspiring management capability, or helping staff with the basics of management, we have a modular approach that will focus on the **one change** that will have the biggest impact on persoonal performance and in turn, on the organisation. 
 
 Each programme is designed to your need and can be as short as two or three focused sessions that move culture or behaviour from one desired state to another, or a longer and more paced programme that covers key abilities of any good leader. These might include: 
 
@@ -52,55 +65,66 @@ Each programme is designed to your need and can be as short as two or three focu
 - Developing introvert or extravert leadership styles 
 
 
+
 #### Emotional Intelligence 
 
 We are a 'Licensed Practitioner' of 'Insights Discovery' delivering powerful interactive workshops based on the power of personality and the psychological works of Carl Jung. 
 
-The workshops first begin with a personal profile to build greater self-awareness and next we take teams to the next level based on their need. All teams will undertake the Insights Discovery day which is extremely powerful in itself. Others want to continue their exploration of Jungian Psychology and the power of personality by doing a 'Team Effectiveness' or 'Leadership Effectiveness' workshop
+The workshops first begin with a personal profile to build greater self-awareness and next, we take teams to the next level based on their need. All teams will undertake the Insights Discovery day which is extremely powerful in itself. Others want to continue their exploration of Jungian Psychology and the power of personality by doing a 'Team Effectiveness' or 'Leadership Effectiveness' workshop
 
 We also work with organisations who have already undertaken Insights but wish to refresh their awareness or bring on new team members. 
 
-You can click on the links below to find out more. 
+You can click below to find out more. 
 
-Insights Discovery: https://www.youtube.com/watch?v=rPszqOmtV8g 
+Insights Discovery:
 
 [![Insights Discovery](https://img.youtube.com/vi/rPszqOmtV8g/0.jpg)](https://www.youtube.com/watch?v=rPszqOmtV8g)
 
-Insights Team Effectiveness: https://www.youtube.com/watch?v=P60GnlhXc3k 
+Insights Team Effectiveness: 
 
 [![Insights Team Effectiveness](https://img.youtube.com/vi/P60GnlhXc3k/0.jpg)](https://www.youtube.com/watch?v=P60GnlhXc3k)
 
-### Personal Resilience and Well Being
+### Communications and Influencing
 
-…to do 
+We build on emotional intelligence to work on the art of mastering our language in order to effectively influence others and develop individual performance.  Building on the work of Noam Chomsky (Linguist) and Neuro Linguistic Programming, we deliver session designed to develop the ability to carefully ‘listen and hear’ the language choices of those around us and in turn, tailor our responses in order to:
 
-### Contact
-email advice….info@justonething for example? 
+* Build greater relationships
+* Develop our ability to influence and have personal presence
+* Improve performance
 
-Also – a nice feature on some websites is a little 'Let's chat' tab in bottom right that you click on and that saves you having to copy and paste an email address and looks a bit slicker if that's possible 
 
-The website Dream and Leap link I sent has one and it looks quite good.
+### Personal Resilience and Well-Being
 
-### Social Media Links
+We provide critical key support and development in the areas of Resilience and Well-Being either as part of a modular programme or as a self-contained development piece.
 
-LinkedIn - https://www.linkedin.com/in/suenaughtonmarsh/ 
+Bringing together neuroscientific techniques, an understanding of how the brain works and solution focused psychotherapy, organisations get a unique and life time skill set in resetting and reframing their stress/stability balance.  This is underpinned  with powerful self-awareness practice and the development of techniques for self-management that can be used at work or at home.  Sessions cover the key areas of:
 
-Facebook - [Link Name Placeholder](https://www.facebook.com/bemoremonty/?ref=aymt_homepage_panel&eid=ARAWAingFNshIuBjXlYHNRFCmC8KgUwQ-2ssMIPCnYpOWxPeoqxKrqmMTCYHdmQh-5shNahSuqw5SRDB)
+* Chronic stress vs inner stability
+* How your brain works under stress (and how to take control of it)
+* 	4 pillars of balance
+* 	Practice and measurement
 
-This is a messy link, it's a subsidiary of my main page but has articles about well being…don't know if this can be tidied up? 
 
-### Articles/Blog 
+### Contact    
 
-The articles below are on my LinkedIn account but will take advice on if they should be links to a blog format so I would copy and paste the text to keep it internal to the website? 
+To find out more and discuss your need, get in touch at:
+
+Email: info@justonethingconsulting.com
+
+Tel: 07967 703545
+
+ LinkedIn – https://www.linkedin.com/in/suenaughtonmarsh/
+
+###  Who we have worked with
+
+Who we have worked with (Logos) here...
+
+### Blog
+
+Examples only for now...
 
 https://www.linkedin.com/pulse/forget-mindfulness-lets-mind-less-sue-naughton-marsh/ 
 
 https://www.linkedin.com/pulse/what-authentic-you-sue-naughton-marsh/ 
 
-https://www.linkedin.com/in/suenaughtonmarsh/detail/recent-activity/posts/ 
-
 https://www.linkedin.com/pulse/tired-management-time-sue-naughton-marsh/ 
-
-### Who we have worked with/who we have helped
-
-…tbc
